@@ -1,1 +1,1 @@
-https://mojaStrona
+https://velnight.github.io/s1/
